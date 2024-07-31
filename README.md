@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **murilincon2005santos@gmail.com**
 
-- 🧍🏽‍♂️ Learn more about me [https://www.linkedin.com/in/murilo-lincon-dos-santos-50616526b/](https://www.linkedin.com/in/murilo-lincon-dos-santos-50616526b/)
+- 🧍🏽‍♂️ Learn more about me [LinkedIn](https://www.linkedin.com/in/murilo-lincon-dos-santos-50616526b/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
