@@ -7,7 +7,7 @@
  
 <br>
  
-### Pra conteúdo sobre análise de dados me siga no LinkedIn ⬇
+### Pra conteúdos sobre Análise de Dados me siga no LinkedIn ⬇
  
 <div> 
   <a href = "mailto:murilincon2005santos@gmail.com"><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
