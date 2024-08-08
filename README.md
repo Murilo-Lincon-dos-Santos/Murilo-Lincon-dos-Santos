@@ -5,7 +5,7 @@
 
 - 📚 I’m currently learning **Data Analysis and Engineering and its Tools.**
 
-- 💬 Ask me about **Bunisses, Excel, SQL, Power BI and Python**
+- 💬 Ask me about **Bunisses Intelligent, Excel, SQL, Power BI and Python**
 
 - 📫 How to reach me **murilincon2005santos@gmail.com**
 
